@@ -17,7 +17,7 @@
 
 - 📫 Cómo comunicarse conmigo **franciscoalvarezevora89@gmail.com**
 
-- ⚡ Dato curioso **Soy médico y padre de tres hermosos hijos**
+- ⚡ Dato curioso **Soy músico y padre de tres hermosos hijos**
 
 <h3 align="left">Conéctate conmigo:</h3>
 <p align="izquierda">
